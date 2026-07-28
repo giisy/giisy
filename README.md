@@ -20,10 +20,6 @@
 
 ---
 
-[todo-listg](https://github.com/giisy/todo-listg)
-
----
-
 reach me → [email](mailto:isauragisyamid@gmail.com) · [instagram](https://www.instagram.com/giisym_/)
 
 *i am vengance*  
