@@ -20,6 +20,6 @@
 
 ---
 
-reach me → [email](mailto:isauragisyamid@gmail.com) · [instagram](https://www.instagram.com/giisym_/)
+reach me →  [instagram](https://www.instagram.com/giisym_/)
 
 *i am vengance*  
