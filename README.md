@@ -4,7 +4,6 @@
 
 *dev. student. building things.*
 
-`React` `TypeScript` `Vite` `Tailwind` `TouchDesigner`
 
 ---
 
